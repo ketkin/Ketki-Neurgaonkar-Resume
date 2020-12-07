@@ -1,1 +1,0 @@
-# Ketki-Neurgaonkar-Resume
