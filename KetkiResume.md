@@ -5,7 +5,7 @@
 UX Designer, Sammamish, WA 
 
 ketki.neurgaonkar@gmail.com  |  425-553-7570   
-Portfolio - uxfol.io/ketki.neurgaonkar   
+Portfolio - https://uxfol.io/ketki.neurgaonkar  
 Linkedin - www.linkedin.com/in/ketki-neurgaonkar-a27a61101
   
 # Introdutcion
